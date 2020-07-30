@@ -4,9 +4,11 @@
 
 #### 😻 I like photography, especially photographing street cats in Turkey
 
+#### 🌿 I have a thing for Calatheas
+
 #### 🚲 I ride my bike a lot
 
-#### 🌿 I have a thing for Calatheas
+
 
 
 
