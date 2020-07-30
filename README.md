@@ -4,11 +4,15 @@
 
 #### 😻 I like photography, especially photographing street cats in Turkey
 
+![cat sleeping in a a flower pot](https://github.com/sennap/sennap/blob/master/IMG_2448.jpg)
+
+
+
 #### 🌿 I have a thing for Calatheas
 
 
 
-![three types of calatheas](https://github.com/sennap/sennap/blob/master/FF0DCA8C-AE93-4F8F-BCC7-177DF803A478.jpg)
+![three types of calatheas: freddie, zebrina](https://github.com/sennap/sennap/blob/master/FF0DCA8C-AE93-4F8F-BCC7-177DF803A478.jpg)
 
 #### 🚲 I ride my bike a lot
 
