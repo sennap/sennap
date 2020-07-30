@@ -1,5 +1,15 @@
 ### Hi there 😎 I'm Senna 
 
+#### 👩🏽‍💻 I'm a Solutions Engineer at GitHub
+
+#### 😻 I like photography, especially photographing street cats in Turkey
+
+#### 🚲 I ride my bike a lot
+
+#### 🌿 I have a thing for Calatheas
+
+
+
 <!--
 **sennap/sennap** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
