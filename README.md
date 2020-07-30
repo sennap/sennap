@@ -6,6 +6,10 @@
 
 #### 🌿 I have a thing for Calatheas
 
+
+
+![three types of calatheas](https://github.com/sennap/sennap/blob/master/FF0DCA8C-AE93-4F8F-BCC7-177DF803A478.jpg)
+
 #### 🚲 I ride my bike a lot
 
 
